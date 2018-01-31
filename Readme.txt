@@ -1,1 +1,0 @@
-https://cpsc641.blogspot.com/
